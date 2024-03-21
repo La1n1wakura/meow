@@ -15,5 +15,3 @@
 ![ezgif-7-db0691ca3a](https://github.com/La1n1wakura/meow/assets/154265988/fd0c5461-7a43-4bfe-8d32-fd4bd81e4491)
 ![ezgif-7-db2b556df2](https://github.com/La1n1wakura/meow/assets/154265988/8a4d12b5-610f-43e3-8eb0-a9590dd6a7f3)
 ![tumblr_cc7bab7e11a0c35ac0e0d6d50c672ab6_11cf3244_100](https://github.com/La1n1wakura/meow/assets/154265988/5f6d1f85-75a2-4aed-bcd0-81b7f631a499)
-![tumblr_b3867a8cf2b31bbcfc219f3394d09029_0dc1569a_100](https://github.com/La1n1wakura/meow/assets/154265988/97573e91-7ab5-4494-b566-4490c451e893)
-![tumblr_376c9798d3e16fafdf1016f321ca106c_056a01e8_100](https://github.com/La1n1wakura/meow/assets/154265988/fffa8272-92ba-459c-af9d-1ca76328576e)
